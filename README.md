@@ -1,2 +1,6 @@
 # Me
-Junmanee
+Junmanee..
+ngan= 7489775776380655>
+<ssLT740002164245^×^
+(ant >169.44782=ssLT1.3776246%THEN
+🌹🕸️SSLT169.44782😊ANT
